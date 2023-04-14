@@ -1,2 +1,2 @@
 - 👋 Hi, I’m @jasonetorres
-- 👀 I am an elder emo, looking for a career change. 
+- 👀 up and coming Software Engineer looking to bring my talents to your company!
