@@ -1,2 +1,2 @@
-- 👋 Hi, I’m @jasonetorres
-- 👀 up and coming Software Engineer looking to bring my talents to your company!
+- 👋 Hi there!
+- 👀  Software Engineer looking to bring my talents to your company!
