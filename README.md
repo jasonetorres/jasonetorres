@@ -6,13 +6,10 @@
 
 
 
-## I'm elder emo, former filmmaker, turned code maker!!
+## elder emo, former filmmaker, turned code maker!!
 
-- 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to collaborate with other content creators
-- 🥅 2023 Goals: Keep Learning
-- ⚡ Fun fact: I am an avid Runner and Movie Buff
 
+-  Fun fact: I am an avid Runner and Movie Buff
 
 
 ### Languages and Tools:
